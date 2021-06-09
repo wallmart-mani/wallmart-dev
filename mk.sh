@@ -1,3 +1,3 @@
 updated--
 hi hello how r u doctor
-im ni gajini
+thi is li de.bali this is ni gajini
